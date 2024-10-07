@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Elen-Sunlady
 - 👀 I’m interested in studying ai
 - 🌱 I’m currently learning ...начинаю
-- 💞️ I’m looking to collaborate on ..интересно
+- 💞️ I’m looking to collaborate on ..I am looking for collaboration to create a portfolio and a website with AI.
 - 📫 How to reach me ...sunlady1@ukr.net
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...я дизайнер
